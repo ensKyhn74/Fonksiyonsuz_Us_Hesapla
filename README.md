@@ -1,0 +1,1 @@
+# Fonksiyonsuz_Us_Hesapla
